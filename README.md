@@ -15,7 +15,7 @@ Johnson Oyetunji is an experienced Chemistry and Biology teacher with over 10 ye
 11. Environmental Conservation Lead - 2018-2024
 12. Laboratory Monitoring and Procurement Officer - 2018-2024 
 
-## SCHOOL-BASED ACTIVITIES: 
+## SCHOOL-BASED ACTIVITIES 1: 
 ### Chemistry Tutor
 As a chemistry teacher, I integrate strong scientific competence with effective pedagogy, ethical conduct, and learner-centred practice. Some of my key attributes include the following:
 
