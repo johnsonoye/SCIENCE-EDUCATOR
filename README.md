@@ -1,4 +1,4 @@
-# SCIENCE-EDUCATOR
+# SCIENCE-EDUCATOR - CHEMISTRY
 Johnson Oyetunji is an experienced Chemistry and Biology teacher with over 10 years of dedicated service in secondary education. He has taught both KS3 and KS4 students, passionately guiding them through the complexities of science and inspiring a love for learning in the classroom. He holds both a BSc and an MSc in Chemistry, which have provided him with a strong scientific foundation and a deep understanding of the subjects he teaches. His approach focuses on making science accessible and engaging, fostering critical thinking and practical skills that prepare students for their exams and future scientific endeavours. He is committed to creating a supportive and dynamic learning environment where every student can thrive and reach their full potential.
 
 ## KEY ACHIEVEMENTS
